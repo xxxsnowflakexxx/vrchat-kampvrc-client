@@ -10,3 +10,4 @@ Heres side to side comparison
 ![blue 1](https://user-images.githubusercontent.com/100178315/202089960-f6ffa103-7c15-421e-9217-57c19a502095.PNG)
 ![kamp 2](https://user-images.githubusercontent.com/100178315/202089961-9bf063dc-6324-4636-8fe6-426ec0ce0cb0.PNG)
 ![blue 2](https://user-images.githubusercontent.com/100178315/202089962-dbac4bb2-7983-4597-82cb-70ffea38b5af.PNG)
+Litteraly if you bought you couldve just bought vrgreen or hex if you looking for best but cheers, sorry for those that bought kamp client 
